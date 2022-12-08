@@ -1,6 +1,3 @@
-
-THE  QUITER YOU BECOME , THE MORE ABLE TO HEAR 
-
-
-
-          ------KALI LINUX------
+Eternity ----
+luminated beast ----
+adeptus -----
