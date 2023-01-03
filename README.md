@@ -1,3 +1,2 @@
 Eternity ----
-luminated beast ----
 adeptus -----
